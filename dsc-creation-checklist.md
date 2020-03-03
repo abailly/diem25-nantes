@@ -9,7 +9,7 @@ Don’t forget to let the DSC coordinators know that if they want to access via 
 
 4) Ask Steve for a Logo with the name of the DSC & guidelines of usage ( and when you get it forward it to the DSC– you can find him on  our telegram group or via email : stevefreytag@posteo.de
 
- 5) Add coordinators to the DSC Coordinators group -  explain them what it is about ( communication channel with all the other DSC Coordinators). Also, invite them to present themselves to the whole group by sending a message to all announcing the launching of their  DSC
+5) Add coordinators to the DSC Coordinators group -  explain them what it is about ( communication channel with all the other DSC Coordinators). Also, invite them to present themselves to the whole group by sending a message to all announcing the launching of their  DSC
 
 6) Join social media telegram group  - Ask those in the DSC dealing with Social Media o join the social media telegram group - you can send them the link via telegram - https://t.me/joinchat/EbLaflMb98Xdae1ujrtW-A
 
